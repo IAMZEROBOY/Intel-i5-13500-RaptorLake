@@ -38,7 +38,7 @@ Final thoughts :
 
 2..Dont troll because i am not an Programer i am Music artist
 
-3.Just i need help and share what i have
+3.Just i need to help and share what i have
 
 4.I am just a comman man who rellay in Logic pro x and Final cut pro
                  
