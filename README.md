@@ -35,8 +35,11 @@ Thanks for all people in internet who helped to created this mechine
 Final thoughts :
 
 1.Build Your Self ( dont spend money on which is free resources )
+
 2..Dont troll because i am not an Programer i am Music artist
+
 3.Just i need help and share what i have
+
 4.I am just a comman man who rellay in Logic pro x and Final cut pro
                  
 MY IG id :[ZEROWILLPLAY](https://www.instagram.com/zerowillplay/)
