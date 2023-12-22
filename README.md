@@ -20,11 +20,11 @@
 
 About this mechine as per my use : 
 - This machine gave me same performace as my windows os (even more points in benchmark)
+- No cpu spikes and fan noise
 - My overall budget is 1 Lakh with monitor and ups
 - Bought fenvi wifi in ebay from china (at just ₹4000 )
 - Used for music and video production
 - Dual boot with windows 11 for my Gaming 😜
-- No cpu spikes and fan noise
 - Gpu 40º /Cpu 41º idel temperature
 
 About my self:
